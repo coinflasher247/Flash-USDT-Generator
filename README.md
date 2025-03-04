@@ -112,7 +112,7 @@ Crypto Security Tool
 
 Community & Updates
 
-Telegram: [https://t.me/MROZUp]
+Telegram: [https://t.me/FLASHUSDTy]
 
 Email: [mroflashusdt@gmail.com]
 
